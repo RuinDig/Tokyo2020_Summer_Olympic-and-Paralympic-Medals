@@ -1,5 +1,5 @@
 # Tokyo2020_Summer_Olympic-and-Paralympic-Medals
-東京2020夏季オリンピック・夏季パラリンピックの金・銀・銅メダル。Tokyo2020 Summer Olympic and Paralympic Games, Gold Medal, Silver Medal and Bronze Medal.
+東京2020夏季オリンピック・夏季パラリンピックの金・銀・銅メダル。Tokyo2020 Summer Olympic Games and Paralympic Games, Gold Medal, Silver Medal and Bronze Medal.
 
 # 2019
 
