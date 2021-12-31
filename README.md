@@ -1,2 +1,82 @@
 # Tokyo2020_Summer_Olympic-and-Paralympic-Medals
-東京2020夏季オリンピック・夏季パラリンピックの金・銀・銅メダル。Tokyo2020 Summer Olympic and Paralympic Games, Gold medal, Silver medal and Bronze medal.
+東京2020夏季オリンピック・夏季パラリンピックの金・銀・銅メダル。Tokyo2020 Summer Olympic and Paralympic Games, Gold Medal, Silver Medal and Bronze Medal.
+
+# 2019
+
+東京都庁での期間限定の展示。2019年7月30日撮影。
+
+Exhibition for a limited time at Tokyo Metropolitan Government building. Photos were taken on 2019.7.30.
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_Olympics_01](https://user-images.githubusercontent.com/20723919/127309995-7fdca82e-6de6-420d-b246-de710744ad39.jpg)
+
+金メダル。 Gold Medal.
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_Olympics_02](https://user-images.githubusercontent.com/20723919/127310106-f8539cd3-58f7-4937-acc6-2fbdd272f5d1.jpg)
+
+左から、銀・金・銅メダル。 From left: Silver Medal, Gold Medal, Bronze Medal.
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_Olympics_03](https://user-images.githubusercontent.com/20723919/127310144-93367ff0-d118-4c7d-9139-29ea7daf4044.jpg)
+
+東京都庁での展示。 Exhibition at Tokyo Metropolitan Government building. Photos on 2019.7.30.
+
+# 2021
+
+日本オリンピックミュージアムでの期間限定の展示。2021年12月11日撮影。
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_Olympics_04](https://user-images.githubusercontent.com/20723919/147823643-30d4cdaf-8b66-46cf-9bfe-2c287033ed82.JPG)
+
+左から、東京2020夏季オリンピックの銀・金・銅メダル。 From left: Tokyo 2020 Summer Olympic Games Silver Medal, Gold <edal, Bronze Medal.
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_Olympics_05](https://user-images.githubusercontent.com/20723919/147823642-9557e5b8-0d55-426e-aa4e-e4322e6209f2.JPG)
+
+東京2020夏季オリンピックの銀メダル。 Tokyo 2020 Summer Olympic Games Silver Medal.
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_Olympics_06](https://user-images.githubusercontent.com/20723919/147823641-d9540930-9980-4901-91c1-a37d4b222ef9.JPG)
+
+東京2020夏季オリンピックの金メダル。 Tokyo 2020 Summer Olympic Games Gold Medal.
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_Olympics_07](https://user-images.githubusercontent.com/20723919/147823640-c323acab-5ef1-4859-bbb2-9c622b591722.JPG)
+
+東京2020夏季オリンピックの銅メダル。 Tokyo 2020 Summer Olympic Games Bronze Medal.
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_Paralympics_08](https://user-images.githubusercontent.com/20723919/147823666-ab0a50a2-1cd9-432d-aead-9396ef2d44ce.JPG)
+
+左から、東京2020夏季パラリンピックの銀・金・銅メダル。 From left: Tokyo 2020 Summer Paralympic Games Silver Medal, Gold Medal, Bronze Medal.
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_Paralympics_09](https://user-images.githubusercontent.com/20723919/147823665-dc9eabef-f5c4-4125-9008-da0898d1d743.JPG)
+
+東京2020夏季パラリンピックの銀メダル。 Tokyo 2020 Summer Paralympic Games Silver Medal.
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_Paralympics_010](https://user-images.githubusercontent.com/20723919/147823664-cd874450-e804-4888-9367-207eecb34e83.JPG)
+
+東京2020夏季パラリンピックの金メダル。 Tokyo 2020 Summer Paralympic Games Gold Medal.
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_Paralympics_011](https://user-images.githubusercontent.com/20723919/147823662-96607f8c-8e8f-462a-a4bf-40f9c0f5a6ff.JPG)
+
+東京2020夏季パラリンピックの銅メダル。 Tokyo 2020 Summer Paralympic Games Bronze Medal.
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_012](https://user-images.githubusercontent.com/20723919/147823703-0ace95ef-d58a-46a6-b115-2b8fc74de98c.JPG)
+
+東京2020オリンピックメダルケース。 Tokyo 2020 Summer Olympic Games Medal Case.
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_013](https://user-images.githubusercontent.com/20723919/147823702-384c326a-1129-45d0-a93d-f0c587a62588.JPG)
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_Olympics_014](https://user-images.githubusercontent.com/20723919/147823698-adc0556a-8490-4d96-9252-834215355a30.JPG)
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_Paralympics_015](https://user-images.githubusercontent.com/20723919/147823697-7a7d1f44-086e-4b9c-abc9-1f1de27cdf6a.JPG)
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_016](https://user-images.githubusercontent.com/20723919/147823701-a858e0a5-47d1-4b86-b188-4a4811f8dcf7.JPG)
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_017](https://user-images.githubusercontent.com/20723919/147823699-f098334c-0b42-4a87-86cc-ed27617560e6.JPG)
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_stage_018](https://user-images.githubusercontent.com/20723919/147823696-25da3d24-5354-41a8-913c-286b1ce67a75.JPG)
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_stage_019](https://user-images.githubusercontent.com/20723919/147823694-1e960678-38ec-4f25-a45f-0543ce305fe1.JPG)
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_stage_020](https://user-images.githubusercontent.com/20723919/147823693-259e8a88-b0db-4f61-8b57-adb0ceb533f5.JPG)
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_stage_021](https://user-images.githubusercontent.com/20723919/147823692-b731fb60-f817-4d8c-b35e-6038e1c9a14a.JPG)
+
+![Tokyo2020_Summer_Olympic-and-Paralympic-Medals_stage_022](https://user-images.githubusercontent.com/20723919/147823689-9c2a8a12-5588-4d31-bef4-adee19967947.JPG)
+
+日本オリンピックミュージアムでの展示。 Exhibition at Japan Olympic Museum. Photos on 2021.12.11.
