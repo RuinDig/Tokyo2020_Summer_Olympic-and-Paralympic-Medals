@@ -61,22 +61,42 @@ Exhibition for a limited time at Tokyo Metropolitan Government building. Photos 
 
 ![013_Tokyo2020_Summer_Olympic-and-Paralympic-Medals](https://user-images.githubusercontent.com/20723919/147823702-384c326a-1129-45d0-a93d-f0c587a62588.JPG)
 
+東京2020オリンピック表彰状。 Tokyo 2020 Summer Olympic Games Victory Diploma Awarded to the Top Eight Finishers.
+
 ![014_Tokyo2020_Summer_Olympic-and-Paralympic-Medals_Olympics](https://user-images.githubusercontent.com/20723919/147823698-adc0556a-8490-4d96-9252-834215355a30.JPG)
+
+東京2020オリンピックビクトリーブーケ(造花)。 Tokyo 2020 Summer Olympic Games Victory Bouquet (Artificial flowers).
 
 ![015_Tokyo2020_Summer_Olympic-and-Paralympic-Medals_Paralympics](https://user-images.githubusercontent.com/20723919/147823697-7a7d1f44-086e-4b9c-abc9-1f1de27cdf6a.JPG)
 
+東京2020パラリンピックビクトリーブーケ(造花)。 Tokyo 2020 Summer Paralympic Games Victory Bouquet (Artificial flowers).
+
 ![016_Tokyo2020_Summer_Olympic-and-Paralympic-Medals](https://user-images.githubusercontent.com/20723919/147823701-a858e0a5-47d1-4b86-b188-4a4811f8dcf7.JPG)
+
+東京2020メダルトレイ。 Tokyo 2020 Medal Tray.
 
 ![017_Tokyo2020_Summer_Olympic-and-Paralympic-Medals](https://user-images.githubusercontent.com/20723919/147823699-f098334c-0b42-4a87-86cc-ed27617560e6.JPG)
 
+東京2020メダルセレモニーユニフォーム。 Tokyo 2020 Victory Celemony Costume.
+
 ![018_Tokyo2020_Summer_Olympic-and-Paralympic-Medals_stage](https://user-images.githubusercontent.com/20723919/147823696-25da3d24-5354-41a8-913c-286b1ce67a75.JPG)
+
+東京2020表彰台。 Tokyo 2020 Victory Stand.
 
 ![019_Tokyo2020_Summer_Olympic-and-Paralympic-Medals_stage](https://user-images.githubusercontent.com/20723919/147823694-1e960678-38ec-4f25-a45f-0543ce305fe1.JPG)
 
+東京2020表彰台。 Tokyo 2020 Victory Stand.
+
 ![020_Tokyo2020_Summer_Olympic-and-Paralympic-Medals_stage](https://user-images.githubusercontent.com/20723919/147823693-259e8a88-b0db-4f61-8b57-adb0ceb533f5.JPG)
+
+東京2020表彰台。 Tokyo 2020 Victory Stand.
 
 ![021_Tokyo2020_Summer_Olympic-and-Paralympic-Medals_stage](https://user-images.githubusercontent.com/20723919/147823692-b731fb60-f817-4d8c-b35e-6038e1c9a14a.JPG)
 
+東京2020表彰台。 Tokyo 2020 Victory Stand.
+
 ![022_Tokyo2020_Summer_Olympic-and-Paralympic-Medals_stage](https://user-images.githubusercontent.com/20723919/147823689-9c2a8a12-5588-4d31-bef4-adee19967947.JPG)
+
+東京2020表彰台。 Tokyo 2020 Victory Stand.
 
 日本オリンピックミュージアムでの展示。 Exhibition at Japan Olympic Museum. Photos on 2021.12.11.
